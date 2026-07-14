@@ -1,0 +1,2 @@
+# JORNAL-DA-ESCOLA
+.
